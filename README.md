@@ -1,4 +1,4 @@
 # hello-world
 This is my first repository
 
-My name is bibavoda and I like Diet Dr. Pepper and Christmas!
+I am the biggest loser in name only.  I wish I was the biggest loser IRL!
